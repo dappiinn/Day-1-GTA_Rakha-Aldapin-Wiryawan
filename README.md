@@ -1,4 +1,4 @@
-# Day-1-(Nama_Kelompok)_Rakha Aldapin Wiryawan
+# Day-1-GTA_Rakha Aldapin Wiryawan
 
 ## Nama Peserta
 Rakha Aldapin Wiryawan
